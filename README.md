@@ -34,7 +34,7 @@
 
 
 ## Hi, ich bin 53ba5tian 👋🏻
-Willkommen auf meinem GitLab Profiel. hier gibt's nix besonders 😁 \
+Willkommen auf meinem GitLab Profiel. Hier gibt's nix besonders 😁 \
  \
  \
  \
